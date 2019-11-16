@@ -1,2 +1,0 @@
-# sinmi-
-just
